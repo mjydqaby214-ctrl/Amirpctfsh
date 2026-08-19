@@ -1,3 +1,2 @@
 # Amirpctfsh
-amirppww.....
-KAMRA
+amirppwwo
